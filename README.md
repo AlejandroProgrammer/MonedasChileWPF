@@ -16,5 +16,5 @@
 
 - https://mindicador.cl/
  
- - Alejandro Mayró L.
+ Alejandro Mayró L.
  
